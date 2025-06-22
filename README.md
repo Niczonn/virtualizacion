@@ -27,4 +27,4 @@ Integrantes del grupo
 
 -Feldmann Nicolas (nico.feldmann@hotmail.com) 
 
--Thiago Fernandez Jara 
+-Thiago Fernandez Jara (thiagojara3@gmail.com)
